@@ -1,5 +1,5 @@
 <p align="center"><a href="https://git.io/typing-svg"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4500&pause=150&color=F7F7F7&width=435&lines=Compel+me%2C+Subdue+me.;This+time+we+won't+be+going+back." alt="Typing SVG" /></a>
-<p align="center"><img src="https://wilardo.crd.co/assets/images/gallery21/4af19c41.gif?v=cc97760d" width="40%"/>
+<p align="center"><img src="https://wilardo.crd.co/assets/images/gallery21/4af19c41.gif?v=cc97760d" width="50%"/>
    
 
 <p align="center">
