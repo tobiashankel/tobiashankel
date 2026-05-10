@@ -1,5 +1,5 @@
 
-<p align="center"><img src="https://wilardo.crd.co/assets/images/gallery21/4af19c41.gif?v=cc97760d" width="50%"/>
+
    
 
 <p align="center">
@@ -54,7 +54,6 @@ Besides that, I am basically always offtab... And even if you W2i i probably won
 <img src="https://64.media.tumblr.com/352b2b5d177dda9822f7fa08429cb0b1/b9fa967118b999fa-44/s100x200/049110528719a636ba3b0cecb304d8c581e32bad.pnj"/>
 <img src="https://64.media.tumblr.com/fec78646d2db8d22ec29167eb932d69f/0cc5f0f5bd63e851-c5/s100x200/5f5cd45f0f4975337136dd1b4e9f3851b4244be6.pnj"/>
 
-<p align="center"><img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/16/bsj.png" width="25%" />
 
 
 
