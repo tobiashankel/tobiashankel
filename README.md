@@ -5,7 +5,7 @@
 <p align="center">
 <img src="https://file.garden/aAnsJSRCrCCMWizn/pixels/blackrose.gifv" img width="20"/> ♡⏝　⸝⸝　　rainer　◞
 <br>
-　︶˚̣̣̣ ྀི †ั⠀ ⠀he  him  　ִ<img src="https://file.garden/aAnsJSRCrCCMWizn/pixels/elipsesbnw.gif" img width="20"/> 　intj 　<img src="https://file.garden/aAnsJSRCrCCMWizn/pixels/doodlecigarette.gif" img width="20"/>
+　︶˚̣̣̣ ྀི †ั⠀ ⠀he  him  　ִ<img src="https://file.garden/aAnsJSRCrCCMWizn/pixels/elipsesbnw.gif" img width="20"/> 　intj <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/15/l89.gif" />
   <br>
 <br>
 <p align="center">
