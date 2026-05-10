@@ -1,25 +1,23 @@
-<p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/dividers/IMG-1057.png" /> 
-
-
-<p align="right"><p align="right"><a href="https://www.last.fm/user/AUTROCITIY"><img align="right" width="300" src="https://lastfm.dedomil.workers.dev/hanreid?dark"></a> <img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/pngs/untitdled370(2).png"  align="right" width="15%">
-
+<p align="center"><a href="https://git.io/typing-svg"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4500&pause=150&color=F7F7F7&width=435&lines=Compel+me%2C+Subdue+me.;This+time+we+won't+be+going+back." alt="Typing SVG" /></a>
+<p align="center"><img src="https://wilardo.crd.co/assets/images/gallery21/4af19c41.gif?v=cc97760d" width="40%"/>
+   
 
 <p align="center">
-︵ rainerㅤᵒʳㅤ  ${\textsf{\color{#f40179}harmless++}}$⠀ ノ <br> 
-⠀꒰⠀⠀<img src="https://i.postimg.cc/gkPvS8x7/IMG_2151.gif"  align="center" >⠀⠀␥⠀⠀he⠀·⠀itㅤ<img src="https://file.garden/Z7-3jqElunno9Cjt/rescources/blinkies%20and%20things/buttons/fb9dff7e405adeef757d7fd8bf191a10ccf348ee.gifv" align="center" width="5%" > <br>
-${\textsf{\color{#f40179}𓏼⠀❛❛ 18yo 𓏵}}$ anti-hara   ───〃⟡ <br>
-<img src="https://i.postimg.cc/mZzD845p/IMG_1136.png" align="center" width="25%" ><br>
-fagfreak / aroallo　҂ ㅤ<img src="https://i.postimg.cc/8ChHP4fL/IMG_2002.gif" align="center" > <br>
-${\textsf{\color{#f40179}dni if under 15  ♱   or pro-hara　═╬}}$<br>
-if it wasnt obvious, <br>im a bit ${\textsf{\color{#f40179}fucked}}$ in the ${\textsf{\color{#f40179}head}}$.<br>
-  <img src="https://i.postimg.cc/661dKgbD/IMG_1990.gif" align="center" width="8%" >
- 
-  <br>  
-    <br>
-      <br>
-        <br>
-          <br>
-  <div align="right">
+<img src="https://file.garden/aAnsJSRCrCCMWizn/pixels/blackrose.gifv" img width="20"/> ♡⏝　⸝⸝　　rainer　◞
+<br>
+　︶˚̣̣̣ ྀི †ั⠀ ⠀he  him  　ִ<img src="https://file.garden/aAnsJSRCrCCMWizn/pixels/elipsesbnw.gif" img width="20"/> 　intj 　<img src="https://file.garden/aAnsJSRCrCCMWizn/pixels/doodlecigarette.gif" img width="20"/>
+  <br>
+<br>
+<p align="center">
+ᴖᴖ  　agender　<img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/tumblr_e8ce3c985a0013c92c2de3039851b5d0_b62eb5cd_75.png"/>　‿୨ ୧‿
+  <br>
+𖧁𓏲  　taken ⁱˡᵐᵇᶠ ࿐ ⠀⠀ <img src="https://file.garden/Z7-3jqElunno9Cjt/github/devotioromantic.png"/><img src="https://file.garden/Z7-3jqElunno9Cjt/github/orchidsexual.png"/>　
+  ⠀
+<br><br>
+<img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/1050811861467136080.webp"/>  　iwc + iayor 　╱　i tend to match energy
+  　
+   
+  <div align="center">
 <details>
   <summary>━୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ ꒰ঌ ໒꒱  extend-ish(?)</summary> 
   <p align="center">
@@ -40,14 +38,22 @@ Besides that, I am basically always offtab... And even if you W2i i probably won
  
 </details>
 <br>
- <div align="left">
+ <div align="center">
 <details>
   <summary>━꒰ঌ ໒꒱  links ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ </summary>
   <p align="center">
   <a href="https://spencer.atabook.org/">atabook</a> <a href="https://ligature.straw.page/">strawpage</a> <a href="https://en.pronouns.page/@GEN0CIDER">en.prns</a> <a href="https://pronouns.cc/@raptophilia">prns.cc(wip)</a> 
   </details>
 <br>
-   <p align="center">
-   <img src="https://komarev.com/ghpvc/?username=mutilaetion&label=Profile%20views&color=f40179&style=flat" />
-<p align="center"><img src="https://i.postimg.cc/Bv0HG6dv/IMG-1056.png" /> 
-<p align="center"><img src="https://file.garden/Z7-3jqElunno9Cjt/Schermafbeelding%202026-05-02%20194106.png" /> 
+<p align="center"><img src="https://file.garden/aAnsJSRCrCCMWizn/dividers/lacesmall.gifv"/>
+<p align="center">
+
+<img src="https://file.garden/aAnsJSRCrCCMWizn/stamps/deathlesslove.png"/>
+  <img src="https://pixelsafari.neocities.org/stamps/evilcat.png"/>
+<img src="https://64.media.tumblr.com/352b2b5d177dda9822f7fa08429cb0b1/b9fa967118b999fa-44/s100x200/049110528719a636ba3b0cecb304d8c581e32bad.pnj"/>
+<img src="https://64.media.tumblr.com/fec78646d2db8d22ec29167eb932d69f/0cc5f0f5bd63e851-c5/s100x200/5f5cd45f0f4975337136dd1b4e9f3851b4244be6.pnj"/>
+
+<p align="center"><img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/16/bsj.png" width="25%" />
+
+
+
