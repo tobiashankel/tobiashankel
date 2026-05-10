@@ -44,9 +44,9 @@ Besides that, I am basically always offtab... And even if you W2i i probably won
   <p align="center">
   <a href="https://spencer.atabook.org/">atabook</a> <a href="https://ligature.straw.page/">strawpage</a> <a href="https://en.pronouns.page/@GEN0CIDER">en.prns</a> <a href="https://pronouns.cc/@raptophilia">prns.cc(wip)</a> 
   </details>
-<br>
-    <p align="center"><a href="https://git.io/typing-svg"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4500&pause=150&color=F7F7F7&width=435&lines=Compel+me%2C+Subdue+me.;This+time+we+won't+be+going+back." alt="Typing SVG" /></a>
        <br>
+       <p align="center">
+  <img src=https://spotify-github-profile.kittinanx.com/api/view?uid=1197191624&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)>
 <p align="center">
 
 <img src="https://file.garden/aAnsJSRCrCCMWizn/stamps/deathlesslove.png"/>
