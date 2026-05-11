@@ -32,7 +32,7 @@ currently 18 years old. 𝟎𝟑/𝟎𝟗/𝟐𝟎𝟎𝟕<br>
 ⋆˙⟡ c+h is always fine, but I'd rather not be covered. <br>
 Besides that, I am basically always offtab... And even if you W2i i probably won't see it in time... I promise I'm not ignoring you I'm just busy doing fuckall
     <p align="center">
-  DNI if youre pro-harassment, under 15, or anyone i've cut ties with. You know who you are. I'm also iffy with pro-c folk, so I'd rather they don't interact either. kodocons thin ice
+  DNI if youre pro-harassment, under 15, or anyone i've cut ties with (You know who you are.) I'm also iffy with pro-para folk, so I'd rather they don't interact either. kodocons thin ice
 
  
 </details>
