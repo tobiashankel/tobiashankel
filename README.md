@@ -28,7 +28,6 @@ currently 18 years old. 𝟎𝟑/𝟎𝟗/𝟐𝟎𝟎𝟕<br>
   HOWEVER!!! I draw the line at zoophilia. If you think zoophilia, whether fiction or not, is okay then do not interact w/ me, you're gross.<br>
 <p align="center">
   If u want to add me anywhere then discord is your best bet, I am @hankreid on discord.<br>
-  I am a gross individual, I have gross interests, I do gross things. Be aware<br>
     <br>
 ⋆˙⟡ c+h is always fine, but I'd rather not be covered. <br>
 Besides that, I am basically always offtab... And even if you W2i i probably won't see it in time... I promise I'm not ignoring you I'm just busy doing fuckall
