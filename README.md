@@ -15,6 +15,7 @@
   ⠀
 <br><br>
 <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/1050811861467136080.webp"/>  　iwc + iayor 　╱　i tend to match energy
+ <br>  i need friends real bad do not be afraid to hmu on discord
   　
    
   <div align="center">
