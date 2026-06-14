@@ -11,7 +11,7 @@
 <p align="center">
 ᴖᴖ  　agender　<img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/tumblr_e8ce3c985a0013c92c2de3039851b5d0_b62eb5cd_75.png"/>　‿୨ ୧‿
   <br>
-𖧁𓏲  　taken ⁱˡᵐᵇᶠ ࿐ ⠀⠀ <img src="https://file.garden/Z7-3jqElunno9Cjt/github/devotioromantic.png"/><img src="https://file.garden/Z7-3jqElunno9Cjt/github/orchidsexual.png"/>　
+𖧁𓏲  　taken ⁱˡᵐᵇᶠ ࿐ ⠀⠀ <img src="https://file.garden/Z7-3jqElunno9Cjt/github/devotioromantic.png" title="devotioromantic"/><img src="https://file.garden/Z7-3jqElunno9Cjt/github/orchidsexual.png" title="orchidsexual"/>　
   ⠀
 <br><br>
 <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/1050811861467136080.webp"/>  　iwc + iayor 　╱　i tend to match energy
