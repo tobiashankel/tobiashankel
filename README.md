@@ -42,7 +42,7 @@ Besides that, I am basically always offtab... And even if you W2i i probably won
 <details>
   <summary>━꒰ঌ ໒꒱  links ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ </summary>
   <p align="center">
-  <a href="https://spencer.atabook.org/">atabook</a> <a href="https://ligature.straw.page/">strawpage</a> <a href="https://en.pronouns.page/@GEN0CIDER">en.prns</a> <a href="https://pronouns.cc/@raptophilia">prns.cc(wip)</a> 
+  <a href="https://spencer.atabook.org/">atabook</a> <a href="https://ligature.straw.page/">strawpage</a> <a href="https://en.pronouns.page/@dottolohen">en.prns</a> <a href="https://pronouns.cc/@raptophilia">prns.cc(wip)</a> 
   </details>
        <br>
        <p align="center">
